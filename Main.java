@@ -1,0 +1,1 @@
+input ala ma kota
